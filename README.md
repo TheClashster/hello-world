@@ -1,3 +1,3 @@
 # hello-world
-Hey kunts
-For the lulz
+Hey guys
+I used to be pretty immature.
